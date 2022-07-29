@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GabrielGarliniTrombeta
+- 👋 Hi, I’m @GabrielGarlini
 - 👀 I’m interested in  aprender coisas novas 
 - 🌱 I’m currently learning HTML E CSS 
 - 💞️ I’m looking to collaborate on não sei ainda mas acredito que vou descobrir 
